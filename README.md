@@ -1,1 +1,1 @@
-# egaip.git.io
+# netipgad.git.io
